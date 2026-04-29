@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hey, I'm Richie Yaragandla. 1st Year Student @Lancaster University.
 
 <!--
 **Rax0904/Rax0904** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
